@@ -4,6 +4,6 @@ Apps you open from the Smart Sidebar on an Oppo or ColorOS phone open full scree
 
 Download, setup steps and questions: https://tapswitch.fyi/floataway/
 
-Free for 14 days, then US$2 once. Questions: hello@tapswitch.fyi
+Free for 14 days, then US$7.35 once. Questions: hello@tapswitch.fyi
 
 FloatAway is not affiliated with Oppo.
